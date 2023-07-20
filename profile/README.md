@@ -1,4 +1,4 @@
-# Kibernetiniu Gudruoliu Bendruomene 
+# Kibernetiku klubas 
 
 ## Members
 
